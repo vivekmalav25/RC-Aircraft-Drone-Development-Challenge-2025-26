@@ -4,7 +4,7 @@
 
 **Duration:** Jul 2025 – Feb 2026  
 **Role:** Design Lead  
-**Team Size:** 4 Members
+**Team Size:** 6 Members
 
 ---
 
